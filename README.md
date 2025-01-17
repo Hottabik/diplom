@@ -15,3 +15,6 @@
 
 
 доска - https://ru.yougile.com/board/4b78c1ad0rrj
+
+
+Гугл документ - https://docs.google.com/document/d/17ymEvYVjf59AfeQmdHQrjIvdGSdju8mlBmsrFJVVVPA/edit?usp=sharing
